@@ -7,7 +7,7 @@
 Please feel free to send me a message on here or on Linkedin for suggestions or other improvements and I'll do my best to get back to you.
 
 
-New projects or improvements should be uploaded every few days, so be sure to check back often!
+I will do my best to upload something at least once a week, so be sure to check back occasionally!
 
 <!---
 agrounds000/agrounds000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
