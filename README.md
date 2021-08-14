@@ -7,7 +7,7 @@
 Please feel free to send me a message on here or on Linkedin for suggestions or other improvements and I'll do my best to get back to you.
 
 
-I will do my best to upload something at least once a week, so be sure to check back occasionally!
+I will try to upload new and interesting things as I come up with ideas and time allows.
 
 <!---
 agrounds000/agrounds000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
